@@ -4,11 +4,13 @@ fxrzdn
 
 anything in [] will be links
 
+more will be added over timw
+
 # Shittybuzz
-The Shittybuzz, also commonly referred to as the Buzzer, Shittybuzzer, Kidibuzz, Shottybuzzer, and Shottyfucker, is an old vtech device made for children that the owner, (Fxrzdn), received back in 2020 as a gift.
+The Shittybuzz, also commonly referred to as the Buzzer, Shittybuzzer, Kidibuzz, Shottybuzzer, and Shottyfucker, is an old vtech device made for children that the owner, [Fxrzdn], received back in 2020 as a gift.
 The device was a Vtech Kidibuzz G2, it was released in 2019 and was advertised as a kid-friendly smartphone device that had 'all' the safety measures to prevent children from gaining access to things parents wouldn't want their kids seeing or doing.
 It performs very badly, as it only came with 8 gigabytes of storage, 512 megabytes of ram, and a 32-bit armv7a processor that runs android 6, with Vtech's modifications of course.
-It was used as a mobile device for about 1-2 years (listen, it was all i had and i was still a kid), until (Fxrzdn) decided to stop around the beginning of 2022, not long before he got the gaming laptop that he still uses to this day.
+It was used as a mobile device for about 1-2 years (listen, it was all i had and i was still a kid), until [Fxrzdn] decided to stop around the beginning of 2022, not long before he got the gaming laptop that he still uses to this day.
 In December of 2025, he was able to get it to hold a charge and got it to turn on, though all of the files were still on there and he couldn't get into it, but thankfully all the files were transferred over.
 It was then factory reset (twice) and used as a way of communicating through discord when not at the pc, though it eventually lost the ability to call and then just turned into a secondary device that was used on and off for other things.
 It is the main device [Fxrzdn] uses to take pictures, creating some funny and VERY iconic memes.
